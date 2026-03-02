@@ -1,1 +1,0 @@
-# pravalika_git
